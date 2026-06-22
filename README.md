@@ -3,6 +3,9 @@ Valerie Avila
 Apasionada por la tecnologia
 
 • ADSO.
-• Desarrollo wed.
+
+• Desarrollo de software.
+
 • Programación
+
 • Colombia 
